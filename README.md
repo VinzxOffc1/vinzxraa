@@ -1,2 +1,0 @@
-# vinzxraa
-by vinz
